@@ -1,1 +1,1 @@
-# MY Fucking FYP
+# MY FYP
